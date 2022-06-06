@@ -1,3 +1,3 @@
 # rsschool-cv
 
-https://VKTR.github.io/rsschool-cv/cv
+https://VKTRenokh.github.io/rsschool-cv/cv
