@@ -10,7 +10,7 @@
 
 ### I want to become a good layout designer
 
-#### I learn quickly, I'm not afraid of the unknown.
+#### I learn quickly, I'm not afraid of the unknown
 
 Studied: the technical side of photography,<br/>
 illustrations,<br/>
