@@ -6,7 +6,7 @@
 - #### discord: VKTRenokh#0468
 - #### telegram: @VKTRenokh
 - #### gmail: viktorenokh@gmail.com
-- #### github: @VKTRenokh
+- #### github: @VKTRenokh 
 
 ### I want to become a good layout designer
 
